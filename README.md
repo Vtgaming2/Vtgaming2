@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Vtgaming2
+- 👀 I’m interested in designing/coding
+- 🌱 I’m currently learning discord.js and python
+- 💞️ I’m looking to collaborate on discord/youtube
+- 📫 How to reach me discord-Hacker boi 69#1234
